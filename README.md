@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @Yatri-Sanjay
+### 👋 Hi, I’m @Sanjay
 
 - 👀 I’m passionate about learning new things every day.
 - 🌱 I’m currently learning about Research Analysis.
